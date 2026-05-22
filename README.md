@@ -6,7 +6,7 @@ We are a community of outdoor enthusiasts based in Townsville, North Queensland,
 ---
 
 ## 🌿 About Us
-The Townsville Bushwalking Club (TBC) has been bringing people together to enjoy the outdoors since its founding in May 1960.  
+The Townsville Bushwalking Club (TBWC) has been bringing people together to enjoy the outdoors since its founding in May 1960.  
 Our members range from beginners to seasoned adventurers, united by a passion for:
 - Day hikes and extended treks
 - Off-track exploration and navigation
